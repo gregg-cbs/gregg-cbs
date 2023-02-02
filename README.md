@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @gregg-cbs
-- 👀 I’m interested in building and creating things, big time
+- 👀 I’m interested in building and creating things
 - 🌱 I’m currently learning how to startup a business and take ideas from concepts to reality
 - 💞️ In my spare time I produce music
 - 📫 How to reach me on my email.
